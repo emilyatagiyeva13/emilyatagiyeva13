@@ -9,5 +9,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about nothing
 - 📫 How to reach me: my pc has stolen
 - 😄 Pronouns: her
-- ⚡ Fun fact: i love cats
+- ⚡ Fun fact: i love dragons
+- 💀 Languages : French , English 
 
