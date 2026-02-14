@@ -6,8 +6,8 @@
 Here are some ideas to get you started:
 
 - 🌱 I’m currently learning web-programming
-- 💬 Ask me about nothing
-- 📫 How to reach me: my pc has stolen
+- 💬 Ask me about React
+- 📫 How to reach me: tagizademilya@gmail.com
 - 😄 Pronouns: her
 - ⚡ Fun fact: i love dragons
 - 💀 Languages : French , English 
